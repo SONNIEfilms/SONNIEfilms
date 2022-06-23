@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SONNIE
+- 👀 I’m interested in Graphic Designing and Video Editing
+- 📫 How to reach me? email: sonniefilms@gmail.com
